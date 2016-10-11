@@ -1,6 +1,7 @@
 # FirstTry-ITSec
 
-so cool :O
+Much wow so cool :O
 #ITSECISAWESOME #YOLO
 
-lol no I'll add my own stuff here >:D
+Hi, I just want to try to write something :D
+
